@@ -1,1 +1,1 @@
-# class-90-pro
+https://sbbbotgh.github.io/class-90-pro/
